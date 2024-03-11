@@ -4,7 +4,7 @@
  
 扫描下方**公众号**，添加关注，每天可领：
 
-![二维码](https://lfs.k.topthink.com/lfs/8670977cc103f362d12f4a9da0086f291dfe474ebf2d5a7be9390a4f7f02e213.dat)
+![二维码](a.jpg)
 
 
 
